@@ -1,0 +1,15 @@
+# Kyoto
+
+I was in Kyoto for less time than Tokyo.  At first, it seemed like a sleepy and flat city, but after we found the right areas it came to life with a romantic charm that you could never find in Tokyo.
+
+Specifically there's a lot going on at the Geisha district, and there's a street called Pontocho street along the river that has some excellent restaurants.  I also found a place called Sake Yoramu, which is a sake bar owned by an Israeli, so he could speak english and serve us excellent sake.  One he gave us was ~30 years old!
+
+Official Kyoto cuisine is the Kaiseki, a multi-course meal.  When you're going, there will probably be a lot of one particular seasonal food served (I went in April, which was Bamboo).  In general, the kyoto food is visually pleasing but more bland (*cough* nuanced...) than what you'll find in Tokyo.
+
+The way to stay in Kyoto is in "ryokan," which is a traditional style inn.  They'll serve kaiseki in your room and give you a kimono to wear for the night.  There's a few sites online that will help you find ryokan to stay in and will also indicate if it is a bilingual staff.  Avoid one called Hiiragiya; it is universally called the best ryokan in Kyoto, but for $600 is really just a ripoff.  Nonetheless, staying in this style will give you one of the most authentic japanese experiences.
+
+Kyoto is littered with shrines.  Literally, you can't walk anywhere without bumping into one.  If you only go to one shrine, go to the Fushimi Inari shrine.  It has thousands of Tori (red gates) that you walk through on a path.  It goes on for miles, and is a beautiful hike.  You can also see the whole city from one of the stopping points (but not the peak, that goes even further!).  There are little restaurant shops along the way, try eating at one of them.  If you only go to two shrines, also visit the Kiyomizudera shrine, which is perhaps the most iconic shrine with its waterfalls.  There's also the Heian shrine (which is a 2/3 facsimile of a chinese shrine) and the Ginkaku shrine (aka Golden Pagoda).
+
+Nijo castle was okay, if you do go make sure to head to the tea house for some green tea and mochi.
+
+There's also a few outdoor shopping centers, which were kind of fun.
