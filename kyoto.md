@@ -14,4 +14,6 @@ A local once told me his favorite temple was Nanzen-ji, so I checked that out.  
 
 Nijo castle was okay, if you do go make sure to head to the tea house for some green tea and mochi.
 
+Matcha is clearly the flavor of choice in Kyoto.  There are many cafes that are dedicated to desserts, ice cream, and matcha flavored drinks.  I found some great treats at [Kyouhayashiya](https://www.yelp.com/biz/京はやしや-京都市), but I'd imagine there are many other places to go.  If you need a tranquil spot for a latte and doing some work, [KissaMaster](https://www.yelp.com/biz/キッサマスター-中京区)'s garden views will fit the bill (and you can even purchase leather backpacks there!).
+
 There's also a few outdoor shopping centers, which were kind of fun.
