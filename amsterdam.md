@@ -14,6 +14,7 @@ Definitely rent a fixie bike if you are a good biker, best way to get around
 
 ### Other things I enjoyed:
 
+* Herring Stall Jonk - little place to get fresh herring and pickles!
 * Pllek - cool shipping container restaurant on a beach on the other side of the river
 * Broodjeszaak "'t Kuyltje" - grab an Ossenworst sandwich
 * Monk Bouldergym - rock climbing and then grab a beer outside
