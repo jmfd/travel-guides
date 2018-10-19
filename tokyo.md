@@ -38,7 +38,7 @@ Akihabara, the Electric City, is the otaku capital.  Here you'll find anime bill
 Shinodome's "Shio City" is relatively new and the most futuristic area of Tokyo.  Take a walk around here.  This is also where you can take the monorail to Odaiba, the artificial island.  Odaiba has a beach and boardwalk.  You can rent a dog and go shopping with it for the day (I didn't do this though).  There's also some interesting futuristic architecture on this island.
 
 ## Shinagawa
-There's an aged sake bar called [Shusaron](http://osakelist.com/en/shusaron-aged-sake-specialty-bar-in-shinagawa/) worth visiting.
+There's an aged sake bar called [Shusaron](http://osakelist.com/en/shusaron-aged-sake-specialty-bar-in-shinagawa/) worth visiting.  After getting hammered on the good stuff, stop by the [ramen alley](https://tokyocheapo.com/food-and-drink/shinagawa-shinatatsu-ramen-street/) just outside the train station and get a bowl (or two).
 
 ## Ginza
 Ginza is a fancy shopping district.  From a tourist perspective, it is notable for having a Kabuki theate. This is a cornerstone of Japanese culture, but I found it a bit boring and would skip especially if you have limited time travelling.  If you are in the neighborhood, Ginza does have a michelin-starred Katsu restaurant called [Katsuzen](https://thosewhowandr.com/blog/michelin-star-tokyo-katsuzen).  Go for lunch for reasonable prices.  Can you tell I love Japanese katsu???
@@ -65,3 +65,4 @@ Home of Ueno park and several museums.  I skipped the museums, but did hang out 
 
 ## Things you may have seen elsewhere but should skip
 - Harmonica Alley. There's not much here and its atmosphere is standard. Instead do the above mentioned Piss Alley or Golden Gai.
+- Musée du Chocolat Théobroma was featured on buzzfeed's [Worth It](https://www.youtube.com/watch?v=uDzl5PG51uI). The cake was good, but not up to my chocolate levels (I need an 11 on chocolateyness!) and not worth an entire trip out of your way for it.
