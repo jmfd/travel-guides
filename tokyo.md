@@ -37,6 +37,12 @@ Akihabara, the Electric City, is the otaku capital.  Here you'll find anime bill
 ## Shinodome/Odaiba
 Shinodome's "Shio City" is relatively new and the most futuristic area of Tokyo.  Take a walk around here.  This is also where you can take the monorail to Odaiba, the artificial island.  Odaiba has a beach and boardwalk.  You can rent a dog and go shopping with it for the day (I didn't do this though).  There's also some interesting futuristic architecture on this island.
 
+## Shinagawa
+There's an aged sake bar called [Shusaron](http://osakelist.com/en/shusaron-aged-sake-specialty-bar-in-shinagawa/) worth visiting.
+
+## Ginza
+Ginza is a fancy shopping district.  From a tourist perspective, it is notable for having a Kabuki theate. This is a cornerstone of Japanese culture, but I found it a bit boring and would skip especially if you have limited time travelling.  If you are in the neighborhood, Ginza does have a michelin-starred Katsu restaurant called [Katsuzen](https://thosewhowandr.com/blog/michelin-star-tokyo-katsuzen).  Go for lunch for reasonable prices.  Can you tell I love Japanese katsu???
+
 ## Tsukuji
 Home of the infamous fish market.  If you go, get up VERY early (5am?) otherwise you'll miss the action like we did.  Even so, you won't feel welcomed and likely get nearly hit by the fork lifts or flying fish.  The restaurant inside the market called "Daiwa Sushi" has the reputation of being the best/freshest sushi in Japan, at the very least I hear it makes an awesome breakfast.
 
@@ -47,7 +53,6 @@ This is a touristy area with a large shrine.  It was under renovation when I wen
 Home of Ueno park and several museums.  I skipped the museums, but did hang out at the park.  There were several street performers and it was really fun, but I'm not sure if I just happened on some sort of festival/special day.
 
 ## Other things to do, but I would probably skip if I were there a limited time
-- Go to a Kabuki play in the Ginza district (boooooring!)
 - Visit the Imperial Palace in Chiyoda (pretty gardens, but not much else)
 - Go to Edo Museum (the building itself is architecturally cool, but only worth seeing if you're a japanese history buff)
 - Yoyogi Park (home to olympic games, but just not that pretty of a park!)
@@ -57,3 +62,6 @@ Home of Ueno park and several museums.  I skipped the museums, but did hang out 
 - Visiting Takeshita street in Harajuku on a sunday to see people all costumed
 - Going to the Golden Gai in Shinjuku district for drinks
 - Seeing a 360 view of Tokyo at Roppongi Hills Tower (and visiting their modern art museum)
+
+## Things you may have seen elsewhere but should skip
+- Harmonica Alley. There's not much here and its atmosphere is standard. Instead do the above mentioned Piss Alley or Golden Gai.
