@@ -28,6 +28,8 @@ The must-go place in Shinjuku is a small area with historically old buildings a 
 
 In a similar vein, Piss Alley is an even smaller old side street, but dedicated to yakitori. You'll be in cramped seating thigh-to-thight with tourists or locals and smothering your clothes in grill smoke.  I'm not sure if the experience is Japan of the old or that from Blade Runner.
 
+There is a yakitori restaurant I went to here that was pretty awesome. I do not have the name of the place, but the directions I followed were: "The restaurant is on the Kabuckicho side of Shinjuku station, but it's much much closer to the station than to Kabukicho itself. You go out the East exit, head towards Alta (the building with the huge television screen on it), and turn right, and it's right around the corner of Mizuho bank."
+
 ## Roppongi
 Roppongi has a new area called Roppongi Hills which has expensive house and shopping.  I believe the second tallest building in Tokyo is here, at the top are some neat modern art exhibits and a way to get on the roof and see the city in 360 degrees.  The view is amazing &mdash; even from these heights you can't see an end to Tokyo.  From the roof, you may spot an area dense in Cherry Blossoms, this is Aoyama cemetary.  If they are in bloom, head directly there, do not pass go, do not collect $200.
 
